@@ -1,2 +1,2 @@
 there's nothing special .
-i'just learning stuff 
+just learning stuff 
